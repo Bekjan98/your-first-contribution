@@ -1,1 +1,1 @@
-- [Aidai Kazybekova](https://github.com/aidai2)
+- [Bekjan Avdalimbaev](https://github.com/Bekjan98)
